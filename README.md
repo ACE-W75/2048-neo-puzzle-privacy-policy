@@ -1,0 +1,1 @@
+# 2048-neo-puzzle-privacy-policy
